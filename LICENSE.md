@@ -1,4 +1,4 @@
-#  
+#  hypershot smart Scripts offers the most advanced hypershot Script, with esp and aimbot. Perfect for dominating any match.
 
 
 
